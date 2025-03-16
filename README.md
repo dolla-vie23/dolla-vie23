@@ -2,7 +2,7 @@
 - 👀 About me ... INFJ-T
                    17
                    🇵🇭|🇯🇵
-                   likes: music(i have mixed music taste), me-time, gaming, fashion (espicially OPIUM style) 
+                   likes: music (i have mixed music taste), me-time, gaming, fashion (espicially OPIUM style) 
 - 🌱 I’m currently learning ... HTML, C#, CSS, C, C++, Prompt Engineering, Javascript, Web Development, SQL, Angular, Data Analytics
                                 ( ik it's a lot 😅, lowkey strugglin' 🥲, but i got this tho 🙌)
 - 📫 Socials ... instagram: bella_donna.belles | discord: xnny_ethrl
